@@ -25,3 +25,29 @@ The tomatoes have been challenging to keep pruned with the support options I hav
 * I have new seeds coming soon and plan on planting fava bean cover crop where the broccoli and cabbage was to fix more nitrogen in the soil again. I'll also grow buckwheat after the fava beans to further enrich the soil and prep them for heavy-feeders in the spring (broccoli).
 
 * Roses are looking awesome, and we found a volunteer hibiscus plant in another bed, so I think I'll start flowering perennial bushes by the garage for next year.
+
+![A rose](July5-rose.jpg)
+
+### July 9, 2023
+
+![Growth on the rose bush](July9-rose.jpg)
+
+![Growth on the blueberry bushes](July9-blueberries.jpg)
+
+![Status of the front porch planters](July9-frontporch.jpg)
+
+![Attempting to grow more lettuce in the front porch planter with chives](July9-lettucechives.jpg)
+
+![Pepper plants doing really well](July9-peppers.jpg)
+
+![Damage to the potato plant from afar](July9-potatodamage1.jpg)
+
+![Damage to the potato plant, up close](July9-potatodamage2.jpg)
+
+![Two sunflowers growing near the garage](July9-sunflowers.jpg)
+
+![Tomato plant #1](July9-tomato1.jpg)
+
+![Tomato plant #2](July9-tomato2.jpg)
+
+![Tomato plant #3](July9-tomato3.jpg)
