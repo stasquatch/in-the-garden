@@ -1,4 +1,4 @@
-baseURL = 'https://main--stellar-llama-b68c3d.netlify.app/'
+baseURL = 'https://in-the-garden.netlify.app/'
 languageCode = 'en-us'
 title = 'In the Garden'
 theme = 'PaperMod'
