@@ -14,7 +14,7 @@ My husband went out to get starter plants for the garden right around the time I
 
 This serves as a summary of my gardening notes, along with some progress photos until June 20th (summer solstice). The approximate last frost date was in the first week of May, for reference.
 
-### April 22nd, 2023
+### April 22, 2023
 
 * 2 blueberry bushes (Northland variety) potted in plastic planters
 
