@@ -51,3 +51,7 @@ The tomatoes have been challenging to keep pruned with the support options I hav
 ![Tomato plant #2](July9-tomato2.jpg)
 
 ![Tomato plant #3](July9-tomato3.jpg)
+
+### July 10, 2023
+
+Planted buckwheat in the raised bed where the cabbage and broccoli used to be. My goal is to replenish phosphorous and nitrogen into the soil, and I'll use it as green manure to grow fava beans and/or lettuce in the same spot in the fall.
