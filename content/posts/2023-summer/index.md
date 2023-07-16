@@ -55,3 +55,17 @@ The tomatoes have been challenging to keep pruned with the support options I hav
 ### July 10, 2023
 
 Planted buckwheat in the raised bed where the cabbage and broccoli used to be. My goal is to replenish phosphorous and nitrogen into the soil, and I'll use it as green manure to grow fava beans and/or lettuce in the same spot in the fall.
+
+### July 16, 2023
+
+The potato plants were looking worse today, with broken stems, which seemed like the final sign that they're done. The harvest was okay, but lots of small potatoes that hadn't really started. I'm guessing it was more than just the potato beetles that caused the damage, so I'll have to do more research before I try potatoes again.
+
+![Red potato harvest](July16-potatoharvest.jpg)
+
+I also was able to get my first batch of compost for the garden (started early last spring or even the fall before?). It looks really rich and dark, and I spread it over the empty (soon carrots) grow bag, both blueberry plants, and the rose bush.
+
+Got 4x4 wood lengths to use as a garden edge by the garage for the bush/shrub garden. We need to pick up 1 cubic yard of top soil, and then I'll transplant the hibiscus and rose bushes.
+
+Sunflowers are ~4' tall by the garage.
+
+Buckwheat is sprouted at about 2 inches tall.
