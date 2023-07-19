@@ -69,3 +69,11 @@ Got 4x4 wood lengths to use as a garden edge by the garage for the bush/shrub ga
 Sunflowers are ~4' tall by the garage.
 
 Buckwheat is sprouted at about 2 inches tall.
+
+### July 18, 2023
+
+Dug up the strawberries and threw them in the garbage because I was sick of feeding bugs and not myself.
+
+The japanese beetles are really bad on the rose bush, so I got soapy water and knocked all the beetles I could find into it. I'll need to monitor a couple times a day until they're gone for good.
+
+I also trimmed the blueberry flowers going to seed and the beetle-bitten parts of the rose bush.
