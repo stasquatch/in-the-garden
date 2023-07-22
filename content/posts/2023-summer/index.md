@@ -1,7 +1,7 @@
 ---
 title: "2023: Summer"
 date: 2023-07-09T11:17:15-04:00
-draft: true
+draft: false
 ---
 
 ## Turnover and plans
@@ -77,3 +77,9 @@ Dug up the strawberries and threw them in the garbage because I was sick of feed
 The japanese beetles are really bad on the rose bush, so I got soapy water and knocked all the beetles I could find into it. I'll need to monitor a couple times a day until they're gone for good.
 
 I also trimmed the blueberry flowers going to seed and the beetle-bitten parts of the rose bush.
+
+### July 22, 2023
+
+Added a new bed this weekend. we're going to let the top soil sit on the weeds/grass to kill it for a week or so before planting in rose bushes. This is just screened top soil and doesn't seem to have great drainage. I added 4 bags of compost/manure, but I think I'll need to top-dress with a thick layer of compost to make the bed healthy and well-draining for the bushes.
+
+![New rose bush bed](July22-newbed.jpg)
