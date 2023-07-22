@@ -2,6 +2,10 @@
 title: "2023: Summer"
 date: 2023-07-09T11:17:15-04:00
 draft: false
+cover:
+  image: "coverimage.jpg"
+  alt: "General greenness from the garden, specifically peppers and tomatoes"
+  relative: false
 ---
 
 ## Turnover and plans
