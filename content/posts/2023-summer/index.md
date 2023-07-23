@@ -87,3 +87,9 @@ I also trimmed the blueberry flowers going to seed and the beetle-bitten parts o
 Added a new bed this weekend. we're going to let the top soil sit on the weeds/grass to kill it for a week or so before planting in rose bushes. This is just screened top soil and doesn't seem to have great drainage. I added 4 bags of compost/manure, but I think I'll need to top-dress with a thick layer of compost to make the bed healthy and well-draining for the bushes.
 
 ![New rose bush bed](July22-newbed.jpg)
+
+### July 23, 2023
+
+Planted Shin Kuroda carrots direct-sow into a grow bag along with 2 coffee pots' worth of grounds and some leftover topsoil from yesterday's rose bed. Used a lot of seeds because I hear carrots are fickle to germinate and I want to make sure I have a good yield. I plan on thinning once they're a couple inches tall.
+
+I'll likely harvest apple mint today to dry in the dehydrator for tea.
