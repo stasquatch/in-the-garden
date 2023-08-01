@@ -93,3 +93,13 @@ Added a new bed this weekend. we're going to let the top soil sit on the weeds/g
 Planted Shin Kuroda carrots direct-sow into a grow bag along with 2 coffee pots' worth of grounds and some leftover topsoil from yesterday's rose bed. Used a lot of seeds because I hear carrots are fickle to germinate and I want to make sure I have a good yield. I plan on thinning once they're a couple inches tall.
 
 I'll likely harvest apple mint today to dry in the dehydrator for tea.
+
+### July 30, 2023
+
+The Botantical Interests buttercrunch lettuce seeds I got are sprouting so much faster than the Menards seeds (red coated).
+
+2 cherry tomato plants are yielding ~5-10 tomatoes per day now.
+
+Buckwheat seems to be growing very slowly.
+
+Most of the Japanese beetles have left the roses alone, but I still find one every other day or so.
