@@ -1,7 +1,7 @@
 ---
 title: "My To-Grow List"
 date: 2023-08-12T08:51:40-04:00
-draft: true
+draft: false
 ---
 
 ## Vegetables
