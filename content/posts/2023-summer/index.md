@@ -103,3 +103,25 @@ The Botantical Interests buttercrunch lettuce seeds I got are sprouting so much 
 Buckwheat seems to be growing very slowly.
 
 Most of the Japanese beetles have left the roses alone, but I still find one every other day or so.
+
+### August 11, 2023
+
+Lettuce is doing really well. Like I said last time, the germination rate of the BI lettuce seeds is a lot more successful than the Menards seeds.
+
+![Lettuce progress](Aug11-lettuce.jpg)
+
+I added a bunch of compost and perlite to the rose bed. The top soil alone was really compacted and didn't drain well, so hopefully this helps before I plant the roses there.
+
+![Rose bed with compost and perlite](Aug11-rosebed.jpg)
+
+Carrots are growing, though I'm worried about soil compaction on the top.
+
+![Carrots growing](Aug11-carrots.jpg)
+
+I didn't know exactly what types of peppers I planted, but it turns out all but 1 are banana/sweet peppers. I waited to see what they would be like if they turned red, and they're supposed to be more mild. I harvested about 60% of them today and used them in dinner.
+
+![Pepper bounty](Aug11-pepperharvest.jpg)
+
+And finally, I chopped all the buckwheat before it went to seed. Next time, I should plant it much closer together than what the packet suggested.
+
+![Raised bed with chopped buckwheat for green manure](Aug11-gardenbed.jpg)
