@@ -125,3 +125,21 @@ I didn't know exactly what types of peppers I planted, but it turns out all but 
 And finally, I chopped all the buckwheat before it went to seed. Next time, I should plant it much closer together than what the packet suggested.
 
 ![Raised bed with chopped buckwheat for green manure](Aug11-gardenbed.jpg)
+
+### August 20, 2023
+
+* Pulled out the dill in the front deck railing planter and replaced it with 2 romaine lettuce.
+
+* Pulled out dying basil in a grow bag and replaced it with radishes.
+
+* Weeded raised bed, pruned and picked peppers.
+
+* Planted carrot seeds in a grow bag, I probably should have started them earlier especially because I had the free space in the grow bag. They may be ready right around or after our first frost in mid-October.
+
+* Planted bok choy on the south end of the raised bed.
+
+* Planted more radishes on the north end of the raised bed.
+
+* Parsley from the beginning of the season is finally doing well, I think I figured out how it prefers to be watered.
+
+* Mulched non-vegetable beds. Probably need to get a straw bale to use as mulch on veggie beds and for over winter, but I need to think about it more.
