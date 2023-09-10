@@ -18,17 +18,17 @@ The tomatoes have been challenging to keep pruned with the support options I hav
 
 ### June 29, 2023
 
-* Harvested last of broccoli and pulled out the plants
+- Harvested last of broccoli and pulled out the plants
 
-* Started sunflowers by the garage and in the front garden
+- Started sunflowers by the garage and in the front garden
 
 ### July 7, 2023
 
-* Removed cabbage
+- Removed cabbage
 
-* I have new seeds coming soon and plan on planting fava bean cover crop where the broccoli and cabbage was to fix more nitrogen in the soil again. I'll also grow buckwheat after the fava beans to further enrich the soil and prep them for heavy-feeders in the spring (broccoli).
+- I have new seeds coming soon and plan on planting fava bean cover crop where the broccoli and cabbage was to fix more nitrogen in the soil again. I'll also grow buckwheat after the fava beans to further enrich the soil and prep them for heavy-feeders in the spring (broccoli).
 
-* Roses are looking awesome, and we found a volunteer hibiscus plant in another bed, so I think I'll start flowering perennial bushes by the garage for next year.
+- Roses are looking awesome, and we found a volunteer hibiscus plant in another bed, so I think I'll start flowering perennial bushes by the garage for next year.
 
 ![A rose](July5-rose.jpg)
 
@@ -128,18 +128,26 @@ And finally, I chopped all the buckwheat before it went to seed. Next time, I sh
 
 ### August 20, 2023
 
-* Pulled out the dill in the front deck railing planter and replaced it with 2 romaine lettuce.
+- Pulled out the dill in the front deck railing planter and replaced it with 2 romaine lettuce.
 
-* Pulled out dying basil in a grow bag and replaced it with radishes.
+- Pulled out dying basil in a grow bag and replaced it with radishes.
 
-* Weeded raised bed, pruned and picked peppers.
+- Weeded raised bed, pruned and picked peppers.
 
-* Planted carrot seeds in a grow bag, I probably should have started them earlier especially because I had the free space in the grow bag. They may be ready right around or after our first frost in mid-October.
+- Planted carrot seeds in a grow bag, I probably should have started them earlier especially because I had the free space in the grow bag. They may be ready right around or after our first frost in mid-October.
 
-* Planted bok choy on the south end of the raised bed.
+- Planted bok choy on the south end of the raised bed.
 
-* Planted more radishes on the north end of the raised bed.
+- Planted more radishes on the north end of the raised bed.
 
-* Parsley from the beginning of the season is finally doing well, I think I figured out how it prefers to be watered.
+- Parsley from the beginning of the season is finally doing well, I think I figured out how it prefers to be watered.
 
-* Mulched non-vegetable beds. Probably need to get a straw bale to use as mulch on veggie beds and for over winter, but I need to think about it more.
+- Mulched non-vegetable beds. Probably need to get a straw bale to use as mulch on veggie beds and for over winter, but I need to think about it more.
+
+### September 10, 2023
+
+- Tomatoes are still having a great time, harvesting ~5 per day
+
+- Bok choy sprouted, I thinned them, and then they disappeared. Not sure if it's a pest issue or if they died in the heat.
+
+- Some of the lettuce seeds sprouted and then died, I think from the heat/direct sun. The botanical interest lettuce (buttercrunch) seems to be doing a lot better than the lettuce seeds from meijer/menards.
