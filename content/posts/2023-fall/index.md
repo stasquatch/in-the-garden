@@ -1,11 +1,7 @@
 ---
-title: "2023: Summer"
-date: 2023-07-09T11:17:15-04:00
+title: "2023: Fall"
+date: 2023-10-07T10:18:10-04:00
 draft: false
-cover:
-  image: "coverimage.jpg"
-  alt: "General greenness from the garden, specifically peppers and tomatoes"
-  relative: false
 ---
 
 ### Oct 6, 2023
