@@ -41,3 +41,9 @@ Got home from a 2-week vacation and the tomatoes are going strong but overrun th
 ![Newly installed hoops on raised bed](./hoops.jpg)
 
 ![Carrots in grow bags and freshly seeded bok choy](./carrots.jpg)
+
+### Oct 23, 2023
+
+- First frost of the season was last night!
+
+- After work I harvested the remaining carrots and peppers. Got a huge bowl full of peppers and I'm not sure how I'm going to get through them. Carrots were small and I should plant them in sandier conditions a little bit earlier in the fall next time.
